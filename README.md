@@ -34,8 +34,7 @@
 
 ## Connect with Me
 
-- [LinkedIn](https://www.linkedin.com/in/aidrizi23)
-- [Twitter](https://twitter.com/aidrizi23)
+- [LinkedIn](https://www.linkedin.com/in/albi-idrizi-a1b348346/)
 - [GitHub](https://github.com/aidrizi23)
 
 ## Hobbies
